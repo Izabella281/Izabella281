@@ -1,4 +1,4 @@
-❤️ **Hei darling, Welcome to my  perfil!** 
+❤️ **Olá querido, bem vindo ao meu   perfil!** 
 
 Meu nome é: Izabella Mantovani
 
